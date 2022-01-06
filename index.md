@@ -40,6 +40,12 @@ Quiet at first. Sometimes awkward. But ultimately fun and laid back.
 - Slack is probably the best way to get ahold of me.
 - If it's urgent and my notifications are snoozed, please feel free to notify anyway.
 
+## Areas for Development
+
+### Works in progress
+- Patience and looking at the bigger picture.
+- Feeling more comfortable/confident in communicating what I'm good at. 
+
 ## Ask Me About
 
 - Music (playing and listening)
